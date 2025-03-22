@@ -1,4 +1,4 @@
-# 👋 こんにちは！I'm Aziz
+# 👋 こんにちは！I'm Aziz (アジズ)
 
 💻 Factory worker by day, tech explorer by night  
 📍 Based in Japan | 🇮🇩 originally  
